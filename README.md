@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Html,JS,CSS,Lua**
 
-- 🤝 I’m love my friend **NoDog**
+- 🤝 I’m love my boyfriend **NoDog**
 
 - 💬 Ask me about **everything you want and i will help you!**
 
